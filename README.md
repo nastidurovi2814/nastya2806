@@ -4,7 +4,7 @@
 - 💞️ We're looking to collaborate with Pavel Durov and Bill Gates (was born 28 of October in 1955), and we want collab with Ivan Zolo.
 - 📫 How to reach us tg @lovepaveldurov .
 - 😄 Pronouns: they/them, meow/gav.
-- ⚡ Fun fact: We really love programming, love POLITEX and love PAVEL DUROV (We're 101/102 of his children).
+- ⚡ Fun fact: We really love programming, love POLITEX and love PAVEL DUROV (We're 101/102 of his children) #FREEDUROV.
 
 <!---
 nasti2814/nasti2814 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
